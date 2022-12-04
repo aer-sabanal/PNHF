@@ -1,1 +1,1 @@
-# Promoting-Nature-HInipaan-Falls
+# Promoting-Nature-Hinipaan-Falls
